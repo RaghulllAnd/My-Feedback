@@ -4,7 +4,5 @@ Check out some of the lovely feedback and endorsements I've received during my t
 Ian Riley - Head of Commercial Indirects.  
 Yes
 
-Christine NG - Strategic Sourcing Manager - Mentor
-
-
+Christine NG - Strategic Sourcing Manager - Mentor  
 Yes
